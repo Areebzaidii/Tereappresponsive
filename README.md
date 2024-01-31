@@ -1,0 +1,1 @@
+https://tereappbyareebresponsive.netlify.app/
